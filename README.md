@@ -2,7 +2,7 @@
 - 👀 I’m interested in WEBDEVELOPMENT, JAVA , MERN 
 - 🌱 I’m currently learning WEB DEVELLOPMENT
 - 💞️ I’m looking to collaborate on ....
-- 📫 How to reach me Email-kannurimeraganesh@gmail.com 
+- 📫 How to reach me Email-  kannurimeraganesh@gmail.com 
 - 😄 Pronouns: MERA GANESH
 - ⚡ Fun fact: .....
 
